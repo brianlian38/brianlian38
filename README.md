@@ -5,4 +5,4 @@
 - 📘 Currently reading [The Body Keeps the Score](https://www.goodreads.com/book/show/18693771-the-body-keeps-the-score)
 
 - 📫 reach me at blian.hba2024@ivey.ca
-- Open to hearing about new job opportunities - particularly Product, Software, & Strategy
+- Open to hearing about new job opportunities - particularly Product & Software
